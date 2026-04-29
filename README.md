@@ -1,2 +1,0 @@
-# leasing
-Nusantara Sakti Group
